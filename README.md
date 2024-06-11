@@ -1,4 +1,4 @@
-## Hi there 👋
+## olá, meu nome é karla, aluna do Francisco cristiano, sou corinthiana e fã do kyan👋
 
 <!--
 **MY4ANDER3/MY4ANDER3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
